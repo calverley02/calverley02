@@ -4,7 +4,7 @@
 - 💞️ I’m looking to resource HIGHLY skiller developers for the Media and Broadcast industry
 - 📫 How to reach me - thomas@christy-media.com or find me on LinkedIn
 
-- Any notes or help you can give me feel free I am open to chatting with as many people as I can regarding roles and my coding journey
+- 🚀 Any notes or help you can give me feel free I am open to chatting with as many people as I can regarding roles and my coding journey
 
 <!---
 calverley02/calverley02 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
